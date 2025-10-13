@@ -1,2 +1,2 @@
 # anal_nuts
-Our anal nuts with my dotafriend
+Our anal_nuts
